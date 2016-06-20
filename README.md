@@ -4,4 +4,4 @@ Inspired by [reflectionsfrom 52 weeks 52 projects](https://speakerdeck.com/jeffe
 
 ##### "Your work is a direct reflection of your knowledge."
 
-That's really, really makes sense! So, this is my reflection about this quote: JUST DO SOMETHING TO LEARN! READ A FUCKING BOOK EVERY WEEK, DO SOME PROJECT EVERY WEEK AND SHUUUT UP!
+That's really, really makes sense! So, this is my reflection about this quote: JUST DO SOMETHING TO LEARN! READ A FUCKING BOOK EVERY WEEK, DO SOME FUCKING PROJECT EVERY WEEK AND SHUUUT UP!
